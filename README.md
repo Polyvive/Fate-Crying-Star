@@ -1,5 +1,5 @@
 # hi
-TBA, but look at this cool thing i can do
+TBA, but look at this cool thing i can do (view in raw pls :C)
                                                                                                                                                                    
                                                                                                                                                                    
 `7MM"""YMM  db   MMP""MM""YMM `7MM"""YMM           .g8"""bgd `7MM"""Mq.`YMM'   `MM'`7MMF'`7MN.   `7MF' .g8"""bgd       .M"""bgd MMP""MM""YMM   db      `7MM"""Mq.  
